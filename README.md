@@ -1,2 +1,1 @@
-# About-us
-Business Description
+[Hot Tub Cover Spot](https://hottubcoverspot.com/) is a leading U.S.-based provider of custom hot tub covers and spa accessories. Since 2008, the company has delivered tens of thousands of spa covers nationwide, and has grown into one of the largest spa cover retailers in the country. Hot Tub Cover Spot serves both residential and commercial markets, offering custom-fit spa covers for standard and oversized hot tub models. A full range of accessories, including cover lifters and caps, is also available through our online store. The company provides a three-year limited warranty on all covers and offers LTL delivery across the continental United States.
